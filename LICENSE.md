@@ -1,4 +1,4 @@
-
+smart catch and tame Script is the best catch and tame Script, featuring auto-collect and undetectable. Safe and powerful for all your needs.
 
 
 
